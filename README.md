@@ -19,4 +19,4 @@ Here are some ideas to get you started:
 Hi, I’m Lasu. 
 I am a developer, designer, and a content creator. Am currently working on a series of personal projects and spending some time on improving small business websites.
 
-Am personete about new technologies and content creation on the web.
+Am personate about new technologies and content creation on the web.
